@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-## 👋 You can reach me at telegram: [@stunter777](https://t.me/stunter777)
+## 👋 You can reach me in telegram: [@stunter777](https://t.me/stunter777)
 
 🌐 My Portfolio / Blog: [krasnikoff.com](https://krasnikoff.com)  
 👨‍💼 My LinkedIn profile: [Nikolai Krasnikov](https://linkedin.com/in/nikolai-kras)
